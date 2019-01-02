@@ -7,5 +7,3 @@ FritzyR2
 * when you finish the cheetoh puffs turn into a celebration
 [BrewCrew] (http://brewcrewball.com)
 
-Looks good Riley! I like the incorporation of the bullet points and url link.
-- Mr. Flannelly
